@@ -1,0 +1,6 @@
+- [https://www.reddit.com/user/Charming_Mammoth9038/](https://www.reddit.com/user/Charming_Mammoth9038/)
+- [https://tonycrynight25.quora.com/](https://tonycrynight25.quora.com/)
+- [https://medium.com/@TonyCrynight25](https://medium.com/@TonyCrynight25)
+- [https://www.youtube.com/@TonyCrynight25 ](https://www.youtube.com/@TonyCrynight25 )
+- [https://x.com/TonyCrynight25](https://x.com/TonyCrynight25)
+- [https://www.youtube.com/watch?v=UwwPDC8grIQ](https://www.youtube.com/watch?v=UwwPDC8grIQ)
