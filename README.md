@@ -5,3 +5,4 @@
 - [https://x.com/TonyCrynight25](https://x.com/TonyCrynight25)
 - [https://www.youtube.com/watch?v=UwwPDC8grIQ](https://www.youtube.com/watch?v=UwwPDC8grIQ)
 - [https://medium.com/@TonyCrynight25/microsoft-integrates-nvidias-geforce-now-into-xbox-game-pages-a-game-changer-in-cloud-gaming-330d9c26370e](https://medium.com/@TonyCrynight25/microsoft-integrates-nvidias-geforce-now-into-xbox-game-pages-a-game-changer-in-cloud-gaming-330d9c26370e)
+- [https://tonycrynight25.quora.com/Why-is-Microsoft-integrating-Nvidia-s-GeForce-Now-into-its-Xbox-game-pages-1?prompt_topic_bio=1](https://tonycrynight25.quora.com/Why-is-Microsoft-integrating-Nvidia-s-GeForce-Now-into-its-Xbox-game-pages-1?prompt_topic_bio=1)
